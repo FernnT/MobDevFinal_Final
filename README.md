@@ -4,6 +4,8 @@
 2. Nakila, Thristan Jay
 3. Sobrecaray, Ian Joseph I.
 
-![image](https://github.com/FernnT/MobDev_Final/assets/136983420/ff5e0cd9-6c0d-4966-ad9a-c310f78db44c)
 
-![image](https://github.com/FernnT/MobDev_Final/assets/136983420/421afccb-b8a7-4767-84b3-009cbdb54927)
+![image](https://github.com/FernnT/MobDevFinal_Final/assets/136983420/633710fa-68a3-4fcf-9e9f-b41bbb43fe8d)
+
+![image](https://github.com/FernnT/MobDevFinal_Final/assets/136983420/850e62bb-3db7-4abb-8ff2-44be2122606f)
+
